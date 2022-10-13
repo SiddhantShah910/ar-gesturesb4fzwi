@@ -1,1 +1,0 @@
-# ar-gesturesb4fzwi
